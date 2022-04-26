@@ -1,0 +1,1 @@
+# AZD_JPAL_STATA
